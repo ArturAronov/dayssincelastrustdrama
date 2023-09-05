@@ -1,2 +1,2 @@
 # dayssincelastrustdrama
-[https://www.dayssincelastrustdrama.com/](Visit me, Senpai)
+(https://www.dayssincelastrustdrama.com/)[Visit me, Senpai]
